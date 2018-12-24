@@ -1,1 +1,1 @@
-# wza.github.ioeqweqeqeqeqweqwe
+# wza.github.io
